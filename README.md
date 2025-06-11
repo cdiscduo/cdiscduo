@@ -1,5 +1,5 @@
 <img src="https://i.postimg.cc/hjyw4bJY/67c1041020468f6569450ad153e6d9d8-1-1-removebg-preview-1.png">
-<p style="text-align: center;">hi, im sawyer. i am 20 and go by he/she, as well as being a boygirl - girlgay.
+<p style="text-align: center;">hi, im sawyer. i am 20 and go by he/she. morute & daughter of cain ♡.
 <br>𝄞 𓂃 ˖
 	<br>ive had a special interest in c!tommy and c!discduo since tommy has joined the dsmp.
 	<br>c!discduo is what i am most known for, they are my babies. i am not a c!dream defender though.
