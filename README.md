@@ -1,4 +1,4 @@
-<img src="https://i.postimg.cc/hjyw4bJY/67c1041020468f6569450ad153e6d9d8-1-1-removebg-preview-1.png">
+<img src="https://i.postimg.cc/wMjYL1qs/blur-edges-5.png">
 <p style="text-align: center;">hi, im sawyer. i am 20 and go by he/she. morute & daughter of cain ♡.
 <br>𝄞 𓂃 ˖
 	<br>ive had a special interest in c!tommy and c!discduo since tommy has joined the dsmp.
