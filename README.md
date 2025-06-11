@@ -1,6 +1,6 @@
 <img src="https://i.postimg.cc/hjyw4bJY/67c1041020468f6569450ad153e6d9d8-1-1-removebg-preview-1.png">
 <p style="text-align: center;">hi, im sawyer. i am 20 and go by he/she, as well as being a boygirl - girlgay.
-	<br>i am a full-time college junior biochemist who studies aquatic life.
+	<br>i am a lover of all things soft, pure, and dainty. i am a fawn and puppy at heart.
 <br>online, i am very shy and sensitive. i will still chat, i love talking to others despite my silence.
 <br>𝄞 𓂃 ˖
 	<br>ive had a special interest in c!tommy and c!discduo since tommy has joined the dsmp.
