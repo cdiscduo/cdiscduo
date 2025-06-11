@@ -5,7 +5,7 @@
 <br>𝄞 𓂃 ˖
 	<br>ive had a special interest in c!tommy and c!discduo since tommy has joined the dsmp.
 	<br>c!discduo is what i am most known for, they are my babies. i am not a c!dream defender though.
-	<br>dont let that fool you though, i hate the &quot;dream&quot; smp. ive written and comic-ized my own story with its characters.
+	<br>dont let that fool you, i hate the &quot;dream&quot; smp. ive written and comic-ized my own story with its characters.
 	<br>one day, i will share that publicly once i feel comfortable within the community.
 <br>˖ 𓂃 ♫
 	<br>i enjoy artists nicole dollanganger and ethel cain very much, as well as many others.
