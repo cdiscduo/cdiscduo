@@ -4,7 +4,6 @@
 	<br>c!discduo is what i am most known for, they are my babies. i am very protective over these two.
 <br>my pride and joy is a full c!discduo merch collection. i collect any c!discduo merch i can get my hands on.
 	<br>dont let that fool you, i hate the &quot;dream&quot; smp. ive written and comic-ized my own story with its characters.
-<br> i dont support any content creators from that horrible server, especially dream. these are my ocs now and i see that as much.
 <br>𝄞 𓂃  ♫ ˖
 </p>
 <p>
