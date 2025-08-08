@@ -2,7 +2,6 @@
 <p style="text-align: center;">hi, im sawyer. i am 20 and go by he/she. morute & daughter of cain ♡.
 	<br>ive had a special interest in c!tommy and c!discduo since tommy has joined the dsmp.
 	<br>c!discduo is what i am most known for, they are my weird daughter and son respectively.
-<br>i collect everything of them, charms, pins, and plushies.
 	<br>dont let that fool you, i hate the &quot;dream&quot; smp. they are my characters now.
 <br>please dni if you ship c!discduo or think tommy was 10-14 in any part of the dsmp, strange.
 <br>𝄞 𓂃  ♫ ˖
