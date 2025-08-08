@@ -3,7 +3,7 @@
 	<br>ive had a special interest in c!tommy and c!discduo since tommy has joined the dsmp.
 	<br>c!discduo is what i am most known for, they are my weird daughter and son respectively.
 	<br>dont let that fool you, i hate the &quot;dream&quot; smp. they are my characters now.
-<br>please dni if you ship c!discduo or think tommy was 10-14 in any part of the dsmp, strange.
+<br>please dni if you ship c!discduo or think tommy was 10-15 in any part of the dsmp, strange.
 <br>𝄞 𓂃  ♫ ˖
 </p>
 <p>
