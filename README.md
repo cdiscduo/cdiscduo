@@ -1,12 +1,13 @@
-<img src="https://i.postimg.cc/nhBC4pHZ/blur-edges-6.png">
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://minecraft.wiki/images/Music_Disc_mellohi_JE1_BE1.png?0a62d"><img src="https://minecraft.wiki/images/Music_Disc_cat_JE1_BE1.png?611e5">
 <p style="text-align: center;">hi, im sawyer. i am 20 and go by he/she. morute & daughter of cain ♡.
 	<br>ive had a special interest in c!tommy and c!discduo since tommy has joined the dsmp.
-	<br>c!discduo is what i am most known for, they are my babies. i am very protective over these two.
-<br>my pride and joy is a full c!discduo merch collection. i collect any c!discduo merch i can get my hands on.
-	<br>dont let that fool you, i hate the &quot;dream&quot; smp. ive written and comic-ized my own story with its characters.
+	<br>c!discduo is what i am most known for, they are my weird daughter and son respectively.
+<br>i collect everything of them, charms, pins, and plushies.
+	<br>dont let that fool you, i hate the &quot;dream&quot; smp. they are my characters now.
+<br>please dni if you ship c!discduo or think tommy was 10-14 in any part of the dsmp, strange.
 <br>𝄞 𓂃  ♫ ˖
 </p>
 <p>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=jqtgcifenx4sowwo00tyga5x9&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=f3c4cd&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)	
+⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=jqtgcifenx4sowwo00tyga5x9&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=f3c4cd&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)	
 </p>
