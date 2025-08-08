@@ -1,5 +1,5 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://minecraft.wiki/images/Music_Disc_mellohi_JE1_BE1.png?0a62d"><img src="https://minecraft.wiki/images/Music_Disc_cat_JE1_BE1.png?611e5">
-<p style="text-align: center;">hi, im sawyer. i am 20 and go by he/she. morute & daughter of cain ♡.
+<p style="text-align: center;">hi, im sawyer. i am 20 and use he/she. morute & daughter of cain ♡.
 	<br>ive had a special interest in c!tommy and c!discduo since tommy has joined the dsmp.
 	<br>c!discduo is what i am most known for, they are my weird daughter and son respectively.
 	<br>dont let that fool you, i hate the &quot;dream&quot; smp. they are my characters now.
