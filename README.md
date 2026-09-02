@@ -7,5 +7,5 @@
 </p>
 <p>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=jqtgcifenx4sowwo00tyga5x9&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=f3c4cd&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)	
+⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=jqtgcifenx4sowwo00tyga5x9&cover_image=false&theme=natemoo-re&show_offline=false&background_color=d4c4c4&interchange=true&profanity=false&hide_remaster=false&bar_color=bf9797&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 </p>
