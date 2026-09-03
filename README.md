@@ -2,8 +2,8 @@
 <p style="text-align: center;">hi, im sawyer. i am 21 and use he/she. morute & daughter of cain ♡.
 	<br>ive had a special interest in c!tommy and c!discduo since tommy has joined the dsmp.
 	<br>c!discduo is what i am most known for, they are my weird daughter and son respectively.
-<br>please dni if you ship c!discduo or think c!tommy was 10-15 in any part of the dsmp, strange.
-	<br>the dsmp is weird and strange, go support the fans that kept it alive, not the horrid creators.
+	<br> i do not care what you think of my special interest, we're all adults here. respect me, i'll respect you.
+<br>please dni if you ship c!discduo or support the dsmp's creators. gross.
 <br>𝄞 𓂃  ♫ ˖
 </p>
 <p>
