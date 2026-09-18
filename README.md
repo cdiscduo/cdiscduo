@@ -2,8 +2,11 @@
 <p style="text-align: center;">hi, im sawyer. i am 21 and use he/she. morute & daughter of cain ♡.
 	<br>ive had a special interest in c!tommy and c!discduo since tommy has joined the dsmp.
 	<br>c!discduo is what i am most known for, they are my weird daughter and son respectively.
-	<br> i do not care what you think of my special interest, we're all adults here. respect me, i'll respect you.
+	<br>
+		<br> i do not care what you think of my special interest, we're all adults here. respect me, i'll respect you.
 <br>please dni if you ship c!discduo or support the dsmp's creators. gross.
+	<br> stop copying my friend's and i's skins on a pony game, jesus.
+	<br>
 <br>𝄞 𓂃  ♫ ˖
 </p>
 <p>
