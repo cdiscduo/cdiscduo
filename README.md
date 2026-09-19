@@ -5,7 +5,6 @@
 	<br>
 		<br> i do not care what you think of my special interest, we're all adults here. respect me, i'll respect you.
 <br>please dni if you ship c!discduo or support the dsmp's creators. gross.
-	<br> stop copying my friend's and i's skins on a pony game, jesus.
 	<br>
 <br>𝄞 𓂃  ♫ ˖
 </p>
